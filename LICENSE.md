@@ -1,4 +1,4 @@
-#  
+#  escape waves for lucky blocks elite Scripts is the best escape waves for lucky blocks Script, featuring auto-farm and private server access. Safe and
 
 
 
